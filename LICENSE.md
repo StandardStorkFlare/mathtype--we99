@@ -1,4 +1,4 @@
-# 
+# MathType for PC | MathType for Windows instant Plugin: toolboxes & machine-learning offers the most advanced MathType for PC | MathType for Windows plugin, with toolboxes and
 
 
 
